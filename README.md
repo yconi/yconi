@@ -6,7 +6,7 @@
 
  - 🚀 studying **[CSS, HTML, Python, Java and .NET]**
  - 💡 studying **Administration** and **Systems Development**
- - 🎸 i make beats **(https://soundcloud.com/yconi)**
+ - 🎸 music producer **(https://soundcloud.com/yconi)**
   
 ### Areas of interest
 	
