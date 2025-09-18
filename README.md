@@ -15,7 +15,6 @@
 
 ## Contact
 
- - **E-mail:** **brunov.correa04@gmail.com**
- - **Discord:** **@yconi**
+ - **E-mail:** **brunov.correa08@gmail.com**
  - **Instagram: brvno.v0**
 ##
