@@ -4,7 +4,7 @@
 
 ## About me
 
- - 🚀 studying **[CSS, HTML, Python, Java and .NET]**
+ - 🚀 studying **[CSS, HTML, Python and Java]**
  - 💡 studying **Administration** and **Systems Development**
  - 🎸 music producer **(https://soundcloud.com/yconi)**
   
